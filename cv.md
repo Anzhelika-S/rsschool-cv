@@ -1,7 +1,7 @@
 # rsschool-cv
 # Anzhelika Silkina
 # My contact info:
-__Tel./WA:__ +7(977)951-95-00
+__Tel./WA:__ +7(977)951-95-00 | +63 915 809 7966
 
 __E-mail:__ anzhelikasilkina@yandex.ru
 
